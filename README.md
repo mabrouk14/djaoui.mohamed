@@ -1,3 +1,2 @@
-# hello.world
-first step in code
-yaooo ca marche.
+# salam allikom.world
+yaooo .
