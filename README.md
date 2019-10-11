@@ -1,2 +1,2 @@
 # salam allikom.world
-yaooo .
+yaooo .wallah mani fahem wallou.
